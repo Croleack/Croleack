@@ -1,6 +1,4 @@
-### Hi there 👋
-
-whoami
+Whoami
 
 I suffered so much that I had no shoes, until one day I came across a man who was missing both legs.
 I took his shoes and felt better 🤷🏼‍♂️
